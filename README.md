@@ -6,4 +6,4 @@
 
 💞️ I’m looking to collaborate on coding in general!
 
-📫 How to reach me darwinz17@gmail.com
+📫 How to reach me darwinz17@protonmail.com
